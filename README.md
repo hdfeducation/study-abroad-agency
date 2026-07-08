@@ -18,7 +18,7 @@ Explore our resources:
 
 - [Australian Student Visa Assistance]([https://hdfeducation.com.au/](https://hdfeducation.com.au/services/))
 - [International Students Australia Guide]([https://hdfeducation.com.au/]([https://hdfeducation.com.au/book-a-consultation/ )]
-- [Study in Australia Resources]([https://hdfeducation.com.au/](https://hdfeducation.com.au/australia-student-visa-update-2026/)
+- [Study in Australia Resources]([https://hdfeducation.com.au/][(https://hdfeducation.com.au/australia-student-visa-update-2026/)]
 
 ## Why Choose HDF Education Australia?
 
